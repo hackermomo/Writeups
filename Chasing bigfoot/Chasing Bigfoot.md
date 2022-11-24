@@ -50,9 +50,9 @@ As always. Special Agent K, the contract is yours, if you choose to accept.
         
     g.   Witness Profession- US Army Personnel 
         
-2. So fight I tried searching on google with these keywords but didnot land up any where, multiple articles but nothing matching the description.
+2. So first, I tried searching on google with these keywords but didnot land up anywhere, multiple articles but nothing matching the description.
 3. Then I started to search for any bigfoot which was named norman. HaHa! what a waste of 30 mins.
-4. Then I decided to go old school bruteforce. Googled. Website which report Bigfoot finding.
+4. Then I decided to go old school bruteforce. Literally Googled. "Website which report Bigfoot finding".
     
     And I landed up on a map of all bigfoot sightings in US.
     

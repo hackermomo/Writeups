@@ -35,8 +35,8 @@ As always. Special Agent K, the contract is yours, if you choose to accept.
 **HOW I SOLVED IT**
 
 1. Things we know -
-    1. Password format - [https://www.mynicewebsite555.it/my-nice-article.html](https://www.mynicewebsite555.it/my-nice-article.html)
-    2. Now that we got that introduction out of the way… During the 1970’s, a Sasquatch was spotted by a member of the US Armed Forces. While heading home from a late night diner, the soldier spotted the Sasquatch crossing the road late at night. After this sighting, the Sasquatch was never seen again. Even disappearing to it’s Klumgon handlers.
+    a. Password format - [https://www.mynicewebsite555.it/my-nice-article.html](https://www.mynicewebsite555.it/my-nice-article.html)
+    b. Now that we got that introduction out of the way… During the 1970’s, a Sasquatch was spotted by a member of the US Armed Forces. While heading home from a late night diner, the soldier spotted the Sasquatch crossing the road late at night. After this sighting, the Sasquatch was never seen again. Even disappearing to it’s Klumgon handlers.
         
         This particular Sasquatch was named “Norman” by it’s handlers.
         
@@ -56,24 +56,24 @@ As always. Special Agent K, the contract is yours, if you choose to accept.
     
     [https://www.google.com/maps/d/viewer?mid=1PX4dE4ZRFR8pEnc2xHATGQe1rDA&hl=en_US&ll=36.23496781061925%2C-92.15675679256975&z=4](https://www.google.com/maps/d/viewer?mid=1PX4dE4ZRFR8pEnc2xHATGQe1rDA&hl=en_US&ll=36.23496781061925%2C-92.15675679256975&z=4)
     
-    And I had read the name the crypto crew being mentioned in some articles. So seemed legit and worth putting some time. Went through the each sighting till I found➖
+5.  And I had read the name the crypto crew being mentioned in some articles. So seemed legit and worth putting some time. Went through the each sighting till I found➖
     
     ![Untitled](Chasing%20Bigfoot%20ef0f3eb28bfb443abfaf216350c85781/Untitled.png)
     
     ![Untitled](Chasing%20Bigfoot%20ef0f3eb28bfb443abfaf216350c85781/Untitled%201.png)
     
-    After almost 1.5 Hrs of skimming found an article that matched the description➖
+6.  After almost 1.5 Hrs of skimming found an article that matched the description➖
     
     [https://www.thecryptocrew.com/2014/06/driver-has-close-sighting-of-bigfoot.html](https://www.thecryptocrew.com/2014/06/driver-has-close-sighting-of-bigfoot.html)
     
     ![Untitled](Chasing%20Bigfoot%20ef0f3eb28bfb443abfaf216350c85781/Untitled%202.png)
     
-    Still, I thought to look for other articles of same sighting.
+7.  Still, I thought to look for other articles of same sighting. One of the querries that I used were:-
     
-    "Brenda" -harris -Elkin bigfoot
+    "Brenda" -harris -Elkin "bigfoot" "late night diner"
     
-    And then it hit me that this article could also be the password and Volla!
+8.  And then it hit me that this article could also be the password and Volla!
     
-    Fin.
+9.  Fin.
     
     ![Untitled](Chasing%20Bigfoot%20ef0f3eb28bfb443abfaf216350c85781/Untitled%203.png)

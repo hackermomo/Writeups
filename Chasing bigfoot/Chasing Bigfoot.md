@@ -57,16 +57,17 @@ As always. Special Agent K, the contract is yours, if you choose to accept.
     And I landed up on a map of all bigfoot sightings in US.
     
     [https://www.google.com/maps/d/viewer?mid=1PX4dE4ZRFR8pEnc2xHATGQe1rDA&hl=en_US&ll=36.23496781061925%2C-92.15675679256975&z=4](https://www.google.com/maps/d/viewer?mid=1PX4dE4ZRFR8pEnc2xHATGQe1rDA&hl=en_US&ll=36.23496781061925%2C-92.15675679256975&z=4)
-    
-5.  And I had read the name the crypto crew being mentioned in some articles. So seemed legit and worth putting some time. Decided to go through the each sighting 
-  
-6.  After almost 1.5 Hrs of skimming found an article that matched the description➖
     ![Untitled](Chasing%20Bigfoot%20ef0f3eb28bfb443abfaf216350c85781/Untitled.png)
     
+5.  And I had read the name the crypto crew being mentioned in some articles. So seemed legit and worth putting some time. Decided to go through the each sighting 
+    
+6.  After almost 1.5 Hrs of skimming found an article that matched the description➖
     ![Untitled](Chasing%20Bigfoot%20ef0f3eb28bfb443abfaf216350c85781/Untitled%201.png)
     
-    [https://www.thecryptocrew.com/2014/06/driver-has-close-sighting-of-bigfoot.html](https://www.thecryptocrew.com/2014/06/driver-has-close-sighting-of-bigfoot.html)
-    
+   
+   
+   [https://www.thecryptocrew.com/2014/06/driver-has-close-sighting-of-bigfoot.html](https://www.thecryptocrew.com/2014/06/driver-has-close-sighting-of-bigfoot.html)
+   
     ![Untitled](Chasing%20Bigfoot%20ef0f3eb28bfb443abfaf216350c85781/Untitled%202.png)
     
 7.  Still, I thought to look for other articles of same sighting. One of the querries that I used were:-

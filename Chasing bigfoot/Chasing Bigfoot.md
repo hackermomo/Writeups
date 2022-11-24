@@ -35,18 +35,20 @@ As always. Special Agent K, the contract is yours, if you choose to accept.
 **HOW I SOLVED IT**
 
 1. Things we know -
-    a. Password format - [https://www.mynicewebsite555.it/my-nice-article.html](https://www.mynicewebsite555.it/my-nice-article.html)
-    b. Now that we got that introduction out of the way… During the 1970’s, a Sasquatch was spotted by a member of the US Armed Forces. While heading home from a late night diner, the soldier spotted the Sasquatch crossing the road late at night. After this sighting, the Sasquatch was never seen again. Even disappearing to it’s Klumgon handlers.
+
+    a.   Password format - [https://www.mynicewebsite555.it/my-nice-article.html](https://www.mynicewebsite555.it/my-nice-article.html)
+    
+    b.   Now that we got that introduction out of the way… During the 1970’s, a Sasquatch was spotted by a member of the US Armed Forces. While heading home from a late night diner, the soldier spotted the Sasquatch crossing the road late at night. After this sighting, the Sasquatch was never seen again. Even disappearing to it’s Klumgon handlers
         
-        This particular Sasquatch was named “Norman” by it’s handlers.
+    c.   This particular Sasquatch was named “Norman” by it’s handlers.
         
-        Timeframe - 1970
+    d.   Timeframe - 1970
         
-        Place and time - Late night diner
+    e.   Place and time - Late night diner
         
-        Name - Norman
+    f.   Name - Norman
         
-        Witness Profession- US Army Personnel 
+    g.   Witness Profession- US Army Personnel 
         
 2. So fight I tried searching on google with these keywords but didnot land up any where, multiple articles but nothing matching the description.
 3. Then I started to search for any bigfoot which was named norman. HaHa! what a waste of 30 mins.
